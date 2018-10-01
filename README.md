@@ -1,1 +1,1 @@
-# Mamezi
+# Strona
